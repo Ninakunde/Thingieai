@@ -1,1 +1,1 @@
-# Thingie
+# I dont have a kunde
